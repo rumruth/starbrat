@@ -1,4 +1,6 @@
-### Hi there 👋
+### mmmmm beer...
+
+[Buy me one?](https://www.buymeacoffee.com/slydoge)
 
 <!--
 **starbrat/starbrat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
